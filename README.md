@@ -1,2 +1,2 @@
 # Pythob-Kurs
-Derslerimden 
+Derslerinde Mesuliyyetli OL!!
